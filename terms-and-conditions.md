@@ -118,7 +118,7 @@ Our Privacy Policy explains what information may be collected, how it is used, h
 
 You can access our Privacy Policy here:
 
-**https://herejoker.github.io/mooner_dev/terms-and-conditions.html**
+**https://www.freeprivacypolicy.com/live/cb6d874a-333d-4e99-86db-b8f00b0bebf9**
 
 By using the Game, you acknowledge that you have had the opportunity to read our Privacy Policy.
 
